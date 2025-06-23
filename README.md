@@ -2,7 +2,7 @@
 
 ## B.Tech - Information Technology
 
-[Visit my Portfolio!]()
+[My Resume !](https://drive.google.com/file/d/1AKhhkpIj0xpmZHgxM7vSWO-FyK7MdjNW/view?usp=sharing)
 
 ---
 ## 🚀 About Me

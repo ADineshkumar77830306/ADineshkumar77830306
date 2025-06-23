@@ -2,7 +2,7 @@
 
 ## B.Tech - Information Technology
 
-[Visit my Portfolio!](https://chatgpt.com/c/68594cff-a63c-8012-9c83-b4d18d6e200a)
+[Visit my Portfolio!]()
 
 ---
 ## 🚀 About Me

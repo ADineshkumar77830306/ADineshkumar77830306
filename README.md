@@ -1,4 +1,4 @@
-# Hi, i'm **Dinesh Kumar A** [ FRONTEND DEVELOPER ] 👋🏻
+# Hi, i'm **Dinesh Kumar A** [ FRONTEND/ MERN DEVELOPER ] 👋🏻
 
 ## B.Tech - Information Technology
 
